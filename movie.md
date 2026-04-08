@@ -1,3 +1,6 @@
+### AFI百年百大明星
+https://zh.wikipedia.org/wiki/AFI%E7%99%BE%E5%B9%B4%E7%99%BE%E5%A4%A7%E6%98%8E%E6%98%9F
+
 ### 濱口 竜介
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/5bb5d105-f385-419d-b091-d0ae4eb217cf" />
