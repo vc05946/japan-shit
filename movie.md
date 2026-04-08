@@ -12,6 +12,13 @@ https://www.l.u-tokyo.ac.jp/interview/graduates/vol_10/
 映画『ハッピーアワー』における演出と演技
 [映画『ハッピーアワー』における演出と演技.pdf](https://github.com/user-attachments/files/26557738/default.pdf)
 
+###バザン
+[アンドレ・バザンとの共鳴.pdf](https://github.com/user-attachments/files/26559627/default.pdf)
+
+###作家主義
+[アレゴリーとしての作家主.pdf](https://github.com/user-attachments/files/26559628/default.pdf)
+
+
 
 ### Hasumi
 <img width="560" height="305" alt="image" src="https://github.com/user-attachments/assets/f614ee20-0d76-4d2f-9930-06e8cdeb29a1" />
