@@ -5,3 +5,6 @@
 
 卒業生インタビュー - 東京大学文学部・大学院人文社会系研究科
 https://www.l.u-tokyo.ac.jp/interview/graduates/vol_10/
+
+映画『ハッピーアワー』における演出と演技
+[映画『ハッピーアワー』における演出と演技.pdf](https://github.com/user-attachments/files/26557738/default.pdf)
