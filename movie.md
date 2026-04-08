@@ -20,3 +20,8 @@ https://www.l.u-tokyo.ac.jp/interview/graduates/vol_10/
 https://x.com/damnfinecoffee/status/2039332568223654362?s=46&t=Om1GRHOzKvC6fi7SJcCaUQ
 https://cine21.com/news/view/?mag_id=20773
 https://cine21.com/news/view/?mag_id=20772
+
+
+<img width="692" height="466" alt="image" src="https://github.com/user-attachments/assets/2930a898-fc4d-4dd8-a994-f1a7883cc3f0" />
+A Private Dialogue: Shigehiko Hasumi and Ryuichi Sakamoto on The Last Emperor
+https://lysisme.art.blog/2021/05/31/a-private-dialogue-shigehiko-hasumi-and-ryuichi-sakamoto-on-the-last-emperor/
