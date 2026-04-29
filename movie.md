@@ -20,7 +20,20 @@ https://www.l.u-tokyo.ac.jp/interview/graduates/vol_10/
 
 ### ジャン・ルノワールの現在をめぐって
 https://culture.institutfrancais.jp/wp-content/uploads/2024/07/2024_JR_web.pdf
+https://www.nfaj.go.jp/site2023/wp-content/uploads/sites/5/2021/02/199611ex.pdf
+https://ameblo.jp/kama-yan-ryo/entry-11633906945.html
+https://x.com/IVC_Tokyo/status/2048726602834444629
 
+
+### 濱口竜介 藝大
+https://www.geidai.ac.jp/container/column/ge_idai_005
+
+### 対談 濱口竜介×野崎歓　異界へと誘う、声と沈黙＜映画『ドライブ・マイ・カー』をめぐって＞
+https://books.bunshun.jp/articles/-/7044?page=4
+
+### 神戸映画資料館のイベント記録
+https://kobe-eiga.net/event/category/hatano_kobo/
+https://kobe-eiga.net/programs/1743/
 
 ### Hasumi
 <img width="560" height="305" alt="image" src="https://github.com/user-attachments/assets/f614ee20-0d76-4d2f-9930-06e8cdeb29a1" />
