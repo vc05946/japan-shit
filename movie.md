@@ -18,6 +18,8 @@ https://www.l.u-tokyo.ac.jp/interview/graduates/vol_10/
 ###作家主義
 [アレゴリーとしての作家主.pdf](https://github.com/user-attachments/files/26559628/default.pdf)
 
+### ジャン・ルノワールの現在をめぐって
+https://culture.institutfrancais.jp/wp-content/uploads/2024/07/2024_JR_web.pdf
 
 
 ### Hasumi
