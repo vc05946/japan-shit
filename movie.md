@@ -23,6 +23,7 @@ https://culture.institutfrancais.jp/wp-content/uploads/2024/07/2024_JR_web.pdf
 https://www.nfaj.go.jp/site2023/wp-content/uploads/sites/5/2021/02/199611ex.pdf
 https://ameblo.jp/kama-yan-ryo/entry-11633906945.html
 https://x.com/IVC_Tokyo/status/2048726602834444629
+https://www.youtube.com/watch?v=xX261HoHKlk
 
 
 ### 濱口竜介 藝大
