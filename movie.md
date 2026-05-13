@@ -24,6 +24,11 @@ https://www.nfaj.go.jp/site2023/wp-content/uploads/sites/5/2021/02/199611ex.pdf
 https://ameblo.jp/kama-yan-ryo/entry-11633906945.html
 https://x.com/IVC_Tokyo/status/2048726602834444629
 https://www.youtube.com/watch?v=xX261HoHKlk
+https://www.youtube.com/watch?v=kqpb8rSAFLg
+https://www.youtube.com/watch?v=WsEPhUu8kKU
+https://www.bilibili.com/video/BV1mXPme2EWf/?spm_id_from=333.337.search-card.all.click&vd_source=7052868c6daec678d6152ad352531076
+https://www.bilibili.com/video/BV1xHM3zjEHz/?spm_id_from=333.1391.0.0&vd_source=7052868c6daec678d6152ad352531076
+
 
 
 ### 濱口竜介 藝大
