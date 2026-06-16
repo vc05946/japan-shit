@@ -23,3 +23,6 @@ https://www.jstage.jst.go.jp/browse/aija/list/-char/ja
 
 日本近代文学
 https://www.jstage.jst.go.jp/browse/nihonkindaibungaku/list/-char/ja
+
+現代美術學報
+https://map.tfam.museum/journal/periodical/jourlist?ddlLang=zh-tw
