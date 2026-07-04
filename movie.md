@@ -29,7 +29,10 @@ https://www.youtube.com/watch?v=WsEPhUu8kKU
 https://www.bilibili.com/video/BV1mXPme2EWf/?spm_id_from=333.337.search-card.all.click&vd_source=7052868c6daec678d6152ad352531076
 https://www.bilibili.com/video/BV1xHM3zjEHz/?spm_id_from=333.1391.0.0&vd_source=7052868c6daec678d6152ad352531076
 
-
+### 《若無其事》
+https://gold-fish-press.com/archives/19301
+https://note.com/zanzo_chinema/n/n740d15243f75
+https://note.com/compactdisco/n/na53265e818e5
 
 ### 濱口竜介 藝大
 https://www.geidai.ac.jp/container/column/ge_idai_005
