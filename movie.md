@@ -44,6 +44,10 @@ https://books.bunshun.jp/articles/-/7044?page=4
 https://kobe-eiga.net/event/category/hatano_kobo/
 https://kobe-eiga.net/programs/1743/
 
+
+### Ryûsuke Hamaguchi on His Cinematic Influences | NYFF59 Talk
+https://www.youtube.com/watch?v=P4xHIf92aQI&t=2414s
+
 ### Hasumi
 <img width="560" height="305" alt="image" src="https://github.com/user-attachments/assets/f614ee20-0d76-4d2f-9930-06e8cdeb29a1" />
 
