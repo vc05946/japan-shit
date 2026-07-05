@@ -48,6 +48,9 @@ https://kobe-eiga.net/programs/1743/
 ### Ryûsuke Hamaguchi on His Cinematic Influences | NYFF59 Talk
 https://www.youtube.com/watch?v=P4xHIf92aQI&t=2414s
 
+### 濱口竜介監督が描き出す「生きた」映画の住人 ！　How Ryusuke Hamaguchi brings out “life” in films
+https://www.youtube.com/watch?v=BeKdG923JTE&t=182s
+
 ### Hasumi
 <img width="560" height="305" alt="image" src="https://github.com/user-attachments/assets/f614ee20-0d76-4d2f-9930-06e8cdeb29a1" />
 
