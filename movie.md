@@ -45,6 +45,8 @@ https://books.bunshun.jp/articles/-/7044?page=4
 https://kobe-eiga.net/event/category/hatano_kobo/
 https://kobe-eiga.net/programs/1743/
 
+#【インタビュー】濱口竜介｜“わからなさ”を共有し、分け合っていく
+https://exp-d.com/interview/18589/
 
 ### Ryûsuke Hamaguchi on His Cinematic Influences | NYFF59 Talk
 https://www.youtube.com/watch?v=P4xHIf92aQI&t=2414s
