@@ -26,3 +26,6 @@ https://www.jstage.jst.go.jp/browse/nihonkindaibungaku/list/-char/ja
 
 現代美術學報
 https://map.tfam.museum/journal/periodical/jourlist?ddlLang=zh-tw
+
+東京大学大学院表象文化論コース Webジャーナル
+https://phantastopia.com/
