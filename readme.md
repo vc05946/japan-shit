@@ -29,3 +29,6 @@ https://map.tfam.museum/journal/periodical/jourlist?ddlLang=zh-tw
 
 東京大学大学院表象文化論コース Webジャーナル
 https://phantastopia.com/
+
+新しい日常、新しい画面
+https://realsound.jp/tag/%e6%96%b0%e3%81%97%e3%81%84%e6%97%a5%e5%b8%b8%e3%80%81%e6%96%b0%e3%81%97%e3%81%84%e7%94%bb%e9%9d%a2
